@@ -1,3 +1,7 @@
-## Hi thevvvvv
-oaghhhh chadtronic is sooo hottt fuckkk im rubbing my belly dirty bavtronic productions
-miek and meslisa
+## Hi There!
+We are a team of 3 people who make lame games together
+
+Members:
+Vivian
+Bixby
+Tony
